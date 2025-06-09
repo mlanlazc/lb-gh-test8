@@ -1,9 +1,0 @@
-# Readme file
-
-hello world
-
-STEVO SAHOVSKI MAGU
-
-STEVO SAHOVSKI MEGA MAGU
-
-DUKA SAHOVSKI MAGU
